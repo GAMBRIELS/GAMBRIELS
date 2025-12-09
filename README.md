@@ -1,6 +1,7 @@
-# ^_^ haaaaooiii
-<div align="middle">
-meow meow meow
+ᯓ★⋆✴︎˚｡⋆
+<div align="left">
+  
+𝄞⨾💿✮˚.⋆ gabriel ⋆⋆⋆ bear ʕ•ᴥ•ʔっ♡
 
 
 
