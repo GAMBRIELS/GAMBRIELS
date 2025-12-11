@@ -4,6 +4,8 @@
 𝄞⨾💿✮˚.⋆ gabriel ⋆⋆⋆ bear ʕ•ᴥ•ʔっ♡
 <br> ⋆✴︎˚｡⋆
 <br> ![IMG_9750](https://github.com/user-attachments/assets/dd911723-4343-4418-a2fe-16381a64abde) 
+<img src=https://github.com/user-attachments/assets/ef20e7ce-1d73-4cf0-a2d2-fbf135e20bf2 width=60 />
+
 <br>
 <br> dedicated to my sweet son ^_^// <img src=https://github.com/user-attachments/assets/46365f1e-9ee7-4a78-a48e-ea4831c48a19 width=30 height=20 />
 
